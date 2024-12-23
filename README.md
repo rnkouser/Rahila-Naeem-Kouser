@@ -16,8 +16,8 @@
 - Creative coding initiatives that merge technology and art ✨
 
 📫 **How to reach me:** 
-- Feel free to drop me an email at [here](rahila.naeem2@gmail.com) ✉️
-- Connect with me on LinkedIn [here](www.linkedin.com/in/rn-kouser-63a881249) 🔗
+- Feel free to drop me an email at [rahila.naeem2@gmail.com](mailto:rahila.naeem2@gmail.com) ✉️
+- Connect with me on LinkedIn [here](https://www.linkedin.com/in/rn-kouser-63a881249) 🔗
 
 😄 **Pronouns:** 
 - She / Her
