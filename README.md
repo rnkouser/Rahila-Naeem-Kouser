@@ -23,5 +23,5 @@
 - She / Her
 
 ⚡ **Fun fact:** 
-- When I'm not coding, you can find me enjoying quality time with my family, whether it's exploring the great outdoors, cozying up indoors with a good movie, or experimenting with new recipes in the kitchen 🍳!
+- When I'm not coding, you can find me enjoying quality time with my family, whether it's exploring the great outdoors, cozying up indoors with a good movie, or experimenting with new recipes in the kitchen 🍳. I'm an avid reader and love diving into science fiction novels and tech magazines. 📚✨!
 
