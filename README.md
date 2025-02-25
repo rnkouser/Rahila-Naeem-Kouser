@@ -17,7 +17,7 @@
 
 📫 **How to reach me:** 
 - Feel free to drop me an email at [rahila.naeem2@gmail.com](mailto:rahila.naeem2@gmail.com) ✉️
-- Connect with me on LinkedIn [here](https://www.linkedin.com/in/rn-kouser-63a881249) 🔗
+- Connect with me on LinkedIn [here](http://www.linkedin.com/in/rahila-naeem-kouser-63a881249)) 🔗
 
 😄 **Pronouns:** 
 - She / Her
